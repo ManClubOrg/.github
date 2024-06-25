@@ -14,7 +14,7 @@ Este GitHub é dedicado aos projetos internos do Man Club. Aqui, nossos funcion�
 
 ## Conecte-se Conosco
 
-Para mais novidades e informações, siga-nos no Instagram: [@manclub](https://www.instagram.com/mancluboficial)
+Para mais novidades e informações, siga-nos no Instagram: [@mancluboficial](https://www.instagram.com/mancluboficial)
 
 ## Convite
 
